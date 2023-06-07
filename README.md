@@ -1,10 +1,5 @@
 ### Hi there 👋
 
-<!--
-**Kepala-bergetar/Kepala-bergetar** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
 Social: 
 https://facebook.com/kepalabergetar90
 https://twitter.com/Kbergetar9
