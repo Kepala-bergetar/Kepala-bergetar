@@ -10,3 +10,6 @@ https://facebook.com/kepalabergetar9/
 https://www.reddit.com/user/kepalabergetar9
 https://hashnode.com/@kepalabergetar9
 https://www.instagram.com/kepalabergetar9/
+https://hackmd.io/@kepalabergetar90
+https://rentry.co/kepalabergetarsd
+https://www.patreon.com/KepalaBergetar9
